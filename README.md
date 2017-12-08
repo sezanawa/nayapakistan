@@ -1,0 +1,1 @@
+# pti.nayapakistan.pk
